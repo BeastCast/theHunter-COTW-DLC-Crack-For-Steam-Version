@@ -9,3 +9,8 @@ https://store.steampowered.com/app/518790/theHunter_Call_of_the_Wild/
 If doesn't work anymore, hit me up on Reddit or Twitter so I can update. AND if you have questions, hit me up as well.
 
 REDDIT: https://www.reddit.com/user/Critical_Employee_20 TWITTER:https://twitter.com/EthanCarsten
+
+Check out my other cracks and mods:
+https://github.com/beastzilla
+
+
